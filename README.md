@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @eoid0607
 - 👀 I’m interested in Fashion designing and Interior designing 
-- 🌱 I’m currently learning project management 
+- 🌱 I’m currently learning SOFTWARE ENGINEERING 
 - 💞️ I’m looking to collaborate on humanitarian aid projects. 
 - 📫 How to reach me eoid0607@gmail.com
 
